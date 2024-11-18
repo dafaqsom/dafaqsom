@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dafaqsom
 - 👀 I’m interested in everyones personal life
-- 🌱 I’m currently learning Hacking & Web Developing
+- 🌱 I’m currently learning Ethical Hacking & Web Developing
 - 💞️ I’m looking to collaborate with her.
 - 📫 How to reach me email: somisbusy@gmail.com
 - 😄 Pronouns: he's a hot hacker
